@@ -9,7 +9,7 @@ Chronic Kidney Disease (CKD) is a major medical problem and can be cured if trea
 
 **Team Size        :** 4
 
-**Team Leader      :** Sriponbala K
+**Team Leader      :** Sriponbala K (queen)
 
 **Team member      :** Rachna R
 
